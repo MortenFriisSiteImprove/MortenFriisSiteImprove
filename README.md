@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Morten Friis
+- (emoji stuff) I’m Product Director for Data
